@@ -1,0 +1,1 @@
+# thay-que-ama-o-ji
